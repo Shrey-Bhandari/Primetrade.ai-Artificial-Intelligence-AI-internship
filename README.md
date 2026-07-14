@@ -1,0 +1,1 @@
+# Primetrade.ai-Artificial-Intelligence-AI-internship
